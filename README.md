@@ -1,5 +1,5 @@
 # 💻 Lojain Zayan
-**Business Operations Coordinator & Analyst | Shopify Partner**
+**Business Operations Coordinator & Analyst | Shopify Expert**
 
 📧 **Email:** logeenzayan@gmail.com
 🔗 **Portfolio:** [lojain21.github.io/Portfolio.github.io](https://lojain21.github.io/Portfolio.github.io/)
